@@ -1,1 +1,0 @@
-# spindie.dizzy
